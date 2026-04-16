@@ -1,0 +1,1 @@
+# szamalk_hirek
